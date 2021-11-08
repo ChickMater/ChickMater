@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ChickMater
+- 👀 I’m interested in chick mating
+- 🌱 I’m currently learning how to give a chick-mate
+- 💞️ I’m looking to collaborate on my learning goals
+- 📫 How to reach me ... You don't reach me ... I reach you.

@@ -3,3 +3,4 @@
 - 🌱 I’m currently learning how to give a chick-mate
 - 💞️ I’m looking to collaborate on my learning goals
 - 📫 How to reach me ... You don't reach me ... I reach you.
+- 📜 Favourite quote; “_Human beings are the most intelligent, most powerful creatures ever known to history_” -- A human being.
